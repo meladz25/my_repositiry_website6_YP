@@ -1,1 +1,0 @@
-# my_repositiry_website6_YP
